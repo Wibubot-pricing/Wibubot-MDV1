@@ -1,0 +1,6 @@
+/*
+Support channel WIBUBOT
+
+
+Yang jual sc ini anak haram
+*/
